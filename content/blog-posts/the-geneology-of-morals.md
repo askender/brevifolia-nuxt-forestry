@@ -16,7 +16,9 @@ We see right away that this initial derivation already contains all the typical 
 
 ![](/ruslan-bardash-g83y6do219w-unsplash.jpg)
 
-Now, first of all, it’s obvious to me that from this theory the origin of the idea “good” has been sought for and established in the wrong place: the judgment “good” did not move here from those to whom “goodness” was shown! It is much more that case that the “good people” themselves, that is, the noble, powerful, higher-ranking and higher-thinking people felt and set themselves and their actions up as good, that is to say, of the first rank, in contrast to everything low, low-minded, common, and vulgar. From this pathos of distance they first arrogated to themselves the right to create values, to stamp out the names for values. What did they care about usefulness!
+## Now, 
+
+first of all, it’s obvious to me that from this theory the origin of the idea “good” has been sought for and established in the wrong place: the judgment “good” did not move here from those to whom “goodness” was shown! It is much more that case that the “good people” themselves, that is, the noble, powerful, higher-ranking and higher-thinking people felt and set themselves and their actions up as good, that is to say, of the first rank, in contrast to everything low, low-minded, common, and vulgar. From this pathos of distance they first arrogated to themselves the right to create values, to stamp out the names for values. What did they care about usefulness!
 
 # “Although the two words “bad” and “evil” both seem opposite to the same idea of “good,” how different they are.”
 
